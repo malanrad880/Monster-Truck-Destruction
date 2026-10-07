@@ -229,4 +229,4 @@ Monster Truck Destruction is available as a **full free version** with all featu
 Don't miss out on the action! **Download Monster Truck Destruction free today and start your racing adventure!**
 
 ---
-**Last updated:** 2026-10-07 15:56:38 UTC
+**Last updated:** 2026-10-07 20:58:24 UTC
